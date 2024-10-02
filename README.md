@@ -10,8 +10,8 @@ Hola soy ZrNoxb 
 
 -No sé cómo programar pero quiero aprender 
 
-Mi steam
+Mi steam:
 https://steamcommunity.com/profiles/76561198798756788
 
-Mi discord
+Mi discord:
 xx_programador_xx
