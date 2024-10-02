@@ -3,8 +3,11 @@ Hola soy ZrNoxb 
 
 👇Sobre mí👇
 Hablo español
+
 Me gustan los videojuegos
+
 Mi juego favorito es scpsl -1.130h
+
 No sé cómo programar pero quiero aprender 
 
 Mi steam
