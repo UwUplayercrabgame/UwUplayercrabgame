@@ -8,8 +8,6 @@ Hola soy ZrNoxb 
 
 -Mi juego favorito es scpsl -1.130h
 
--No sé cómo programar pero quiero aprender 
-
 Mi steam:
                                       https://steamcommunity.com/profiles/76561198798756788
 
