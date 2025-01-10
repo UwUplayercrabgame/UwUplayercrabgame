@@ -12,4 +12,4 @@ Mi steam:
                                       https://steamcommunity.com/profiles/76561198798756788
 
 Mi discord:
-               xx_programador_xx
+               zrnoxb
